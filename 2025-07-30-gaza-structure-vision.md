@@ -3,14 +3,15 @@
 
 ---
 title: "ガザ支援構想と国家承認のねじれ"
-slug: 記事のスラッグ（URLの最後の部分）
+slug: gaza-structure-vision
 original_published: 2025-07-30   
 last_updated: 2025-08-01         
 archived_at: 2025-08-08          
 tags: [distributed identityfaith and societyideologyinformationstructurenationhoodparaaesthetic autonomyrelationalitystatelessnessstructuretechnological residue]
 ---
 
-# ガザ支援構想と国家承認のねじれ
+# タイトル
+ガザ支援構想と国家承認のねじれ
 
 ## 公開日
 2025年07月30日
@@ -167,6 +168,7 @@ distributed identityfaith and societyideologyinformationstructurenationhoodparaa
 https://note.com/miyakojupiter/n/nb4c341f4166e
 
 https://x.com/paraaestheline/status/1950523250154627290
+
 
 
 
