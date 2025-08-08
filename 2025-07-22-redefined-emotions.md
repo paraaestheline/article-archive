@@ -101,8 +101,9 @@ AIのラベルによって潰されてしまう。
 - 元記事URL: https://paraaestheline.com/redefined-emotions/
 - 関連リンクや資料など
 
-https://x.com/paraaestheline/status/1947822915870986396
+https://x.com/paraaestheline/status/1947663979742208433
 
 https://note.com/miyakojupiter/n/n8d392b4cc3a0
+
 
 
