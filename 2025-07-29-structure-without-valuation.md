@@ -1,8 +1,9 @@
 ---
 title: "評価系を持たない構造体の運用"
 slug: structure-without-valuation/
-original_published: 2025-07-29   # 元の公開日
-archived_at: 2025-08-08          # GitHubに保存した日
+original_published: 2025-07-29   
+last_updated: 2025-07-30 
+archived_at: 2025-08-08          
 tags: [cognitive asymmetryideologymetacognitionprofessional identitysocial structurestructure]
 ---
 
@@ -119,4 +120,5 @@ tags: [cognitive asymmetryideologymetacognitionprofessional identitysocial struc
 https://note.com/miyakojupiter/n/nbed26a9e128a
 
 https://x.com/paraaestheline/status/1950074252595462343
+
 
