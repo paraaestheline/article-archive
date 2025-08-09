@@ -2,7 +2,7 @@ title: “01：ふたりのお菓子”
 URL: https://paraaestheline.com/dessert-duet/
 original_published: 2025-06-26
 last_updated: 2025-07-27   
-archived_at: 2025-08-08          
+archived_at: 2025-08-09          
 
 ---
 2025年6月26日
@@ -44,3 +44,4 @@ Catlog
 https://x.com/paraaestheline/status/1938053291029778438
 
 https://note.com/miyakojupiter/n/nac219e08193f
+
