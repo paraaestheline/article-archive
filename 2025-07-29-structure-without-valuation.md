@@ -117,8 +117,8 @@ tags: [cognitive asymmetryideologymetacognitionprofessional identitysocial struc
 
 - 関連リンクや資料など
 
-https://note.com/miyakojupiter/n/nbed26a9e128a
 
 https://x.com/paraaestheline/status/1950074252595462343
+
 
 
