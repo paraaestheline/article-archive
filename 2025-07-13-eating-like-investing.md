@@ -53,4 +53,4 @@ Snippets
 
 https://x.com/paraaestheline/status/1944194355612594223
 
-https://note.com/miyakojupiter/n/nd7940bcca2dc
+
