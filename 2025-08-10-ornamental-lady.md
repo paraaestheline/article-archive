@@ -38,11 +38,8 @@ but I also know that it is much more absurd to believe that the cat of today is 
 
 ## 補足
 - 関連リンク
-
-https://note.com/miyakojupiter/n/nc85067215f68
-
 https://x.com/paraaestheline/status/1954335017355915283
 
-https://web.archive.org/web/20250810000739/https://paraaestheline.com/ornamental-lady/
+
 
 
