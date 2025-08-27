@@ -133,7 +133,7 @@ trace_SELF_04｜この構造は、自画像である
 
 https://x.com/paraaestheline/status/1930984489909682529
 
-https://note.com/miyakojupiter/n/n1a7d6bb6062d
+
 
 
 
