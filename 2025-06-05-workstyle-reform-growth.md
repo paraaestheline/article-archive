@@ -78,6 +78,5 @@ Essay
 
 ## 補足
 - 関連リンク
-https://note.com/miyakojupiter/n/n661f5fead59d
-
 https://x.com/paraaestheline/status/1930405222259798285
+
