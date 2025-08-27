@@ -112,8 +112,7 @@ Essay
 ## 補足
 - 関連リンク
 
-https://web.archive.org/web/20250812001128/https://paraaestheline.com/abekobo-relational-structure/
-
 https://x.com/paraaestheline/status/1955061401518739744
 
-https://note.com/miyakojupiter/n/n172dd5aef898
+
+
