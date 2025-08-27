@@ -103,7 +103,7 @@ AIのラベルによって潰されてしまう。
 
 https://x.com/paraaestheline/status/1947663979742208433
 
-https://note.com/miyakojupiter/n/n8d392b4cc3a0
+
 
 
 
