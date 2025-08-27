@@ -73,4 +73,5 @@ AIに食わせるために書く、のならば、何に価値がおかれるの
 
 https://x.com/paraaestheline/status/1940076635262525511
 
-https://note.com/miyakojupiter/n/na1d9e98d0483
+
+
