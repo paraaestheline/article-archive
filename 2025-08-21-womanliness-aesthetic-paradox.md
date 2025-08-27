@@ -60,8 +60,6 @@ Snippets
 
 ## 補足
 - 関連リンク
-https://web.archive.org/web/20250821104812/https://paraaestheline.com/womanliness-aesthetic-paradox/
-
 https://x.com/paraaestheline/status/1958482237453689274
 
-https://note.com/miyakojupiter/n/n96dfb473bcb9
+
