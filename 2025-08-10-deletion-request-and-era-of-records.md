@@ -49,8 +49,4 @@ Essay
 
 ## 補足
 - 関連リンク
-https://web.archive.org/web/20250810005305/https://paraaestheline.com/deletion-request-and-era-of-records/
-
 https://x.com/paraaestheline/status/1954368711068184660
-
-https://note.com/miyakojupiter/n/nea9cc6f751f6
