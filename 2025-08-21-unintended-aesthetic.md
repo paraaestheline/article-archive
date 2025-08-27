@@ -72,9 +72,6 @@ Snippets
 
 ## 補足
 - 関連リンク
-
-https://web.archive.org/web/20250821025307/https://paraaestheline.com/unintended-aesthetic/
-
 https://x.com/paraaestheline/status/1958364333723066431
 
-https://note.com/miyakojupiter/n/ne301c6785480
+
