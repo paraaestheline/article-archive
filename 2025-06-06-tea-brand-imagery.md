@@ -62,4 +62,3 @@ archived_at: 2025-08-08
 
 ## 補足
 - 関連リンク
-https://note.com/miyakojupiter/n/n09c33394185e
