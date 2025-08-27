@@ -72,4 +72,3 @@ Essay
 
 ## 補足
 - 関連リンク
-https://note.com/miyakojupiter/n/nbc87f8650c75
