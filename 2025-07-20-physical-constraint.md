@@ -49,4 +49,3 @@ Still Tangled
 
 https://x.com/paraaestheline/status/1946882792207593916
 
-https://note.com/miyakojupiter/n/n435e0696408d
