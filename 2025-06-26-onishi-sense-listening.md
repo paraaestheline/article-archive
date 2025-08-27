@@ -78,4 +78,5 @@ archived_at: 2025-08-08
 - 関連リンク
 https://x.com/paraaestheline/status/1938246251688218827
 
-https://note.com/miyakojupiter/n/nae9a8af2257e
+
+
