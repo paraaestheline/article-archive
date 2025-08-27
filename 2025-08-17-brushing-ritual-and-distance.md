@@ -44,10 +44,8 @@ Catlog
 
 ## 補足
 - 関連リンク
-https://web.archive.org/web/20250817053219/https://paraaestheline.com/brushing-ritual-and-distance/
-
 https://x.com/paraaestheline/status/1956953222666711375
 
-https://note.com/miyakojupiter/n/n80f007052ff3
+
 
 
