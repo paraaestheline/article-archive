@@ -41,10 +41,7 @@ Snippets
 
 ## 補足
 - 関連リンク
-https://web.archive.org/web/20250811235000/https://paraaestheline.com/wit-intellect-in-ai-model/
-
-https://note.com/miyakojupiter/n/n753432e8ae7e
-
 https://x.com/paraaestheline/status/1955055709474730239
+
 
 
