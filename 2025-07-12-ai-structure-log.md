@@ -72,5 +72,5 @@ AI、社会、自分自身──そして再び書く衝動が訪れます。
 - 関連リンク
 https://x.com/paraaestheline/status/1943706355799392382
 
-https://note.com/miyakojupiter/n/ne5c91e195951
+
 
