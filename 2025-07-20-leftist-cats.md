@@ -42,6 +42,5 @@ Catlog
 ## 補足
 - 関連リンク
 
-https://note.com/miyakojupiter/n/n8e00ef10b653
-
 https://x.com/paraaestheline/status/1946884170262979053
+
