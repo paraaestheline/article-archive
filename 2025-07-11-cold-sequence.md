@@ -93,6 +93,5 @@ Snippets
 
 https://x.com/paraaestheline/status/1943465998985892288
 
-https://note.com/miyakojupiter/n/n2771f7ed464d
 
 
