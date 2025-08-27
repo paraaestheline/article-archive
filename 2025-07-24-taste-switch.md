@@ -22,6 +22,5 @@ Snippets
 ## 補足
 - 関連リンク
 
-https://note.com/miyakojupiter/n/n1f6c3ebc1f9f
-
 https://x.com/paraaestheline/status/1948561317612453947
+
