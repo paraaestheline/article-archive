@@ -55,7 +55,4 @@ Earlyworks
 
 ## 補足
 - 関連リンク
-
-https://note.com/miyakojupiter/n/nca66983a6c90
-
 https://x.com/paraaestheline/status/1935304007448420773
