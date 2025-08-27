@@ -34,4 +34,3 @@ Catlog
 
 https://x.com/paraaestheline/status/1947548627242783068
 
-https://note.com/miyakojupiter/n/n3c41ffcda739
