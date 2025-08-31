@@ -32,6 +32,8 @@ Snippets
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1953309420118786481
+https://archive.md/LyrIC
+
 
 
 
