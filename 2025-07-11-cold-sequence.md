@@ -92,6 +92,8 @@ Snippets
 - 関連リンク
 
 https://x.com/paraaestheline/status/1943465998985892288
+https://archive.md/EH5S8
+
 
 
 
