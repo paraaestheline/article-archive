@@ -22,5 +22,7 @@ Reflection：白い壁を背景に、沈黙と構図の静かな呼吸。男と�
 - 関連リンク
 
 https://x.com/paraaestheline/status/1934745749650329810
+https://archive.md/JJocM
+
 
 
