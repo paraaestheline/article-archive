@@ -79,4 +79,6 @@ Essay
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1930405222259798285
+https://archive.md/sov2u
+
 
