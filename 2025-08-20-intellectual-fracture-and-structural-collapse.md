@@ -151,4 +151,7 @@ AIは、知識を“わかりやすく”翻訳することはできる。
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1957847750453916073
+https://archive.md/SWncL
+
+
 
