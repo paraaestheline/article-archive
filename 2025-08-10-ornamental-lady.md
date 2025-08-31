@@ -39,6 +39,7 @@ but I also know that it is much more absurd to believe that the cat of today is 
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1954335017355915283
+https://archive.md/0LbKR
 
 
 
