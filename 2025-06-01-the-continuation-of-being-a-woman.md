@@ -98,3 +98,4 @@ Essay
 
 ## 補足
 - 関連リンク
+https://archive.md/9Og1Y
