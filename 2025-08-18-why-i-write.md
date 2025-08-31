@@ -66,5 +66,7 @@ AIをツールと見る感覚は理解できる。
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1957254903623234046
+https://archive.md/ewR05
+
 
 
