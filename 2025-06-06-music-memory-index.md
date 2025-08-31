@@ -132,6 +132,8 @@ trace_SELF_04｜この構造は、自画像である
 - 関連リンク
 
 https://x.com/paraaestheline/status/1930984489909682529
+https://archive.md/VVwTm
+
 
 
 
