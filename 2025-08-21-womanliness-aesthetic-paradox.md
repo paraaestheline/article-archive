@@ -61,5 +61,6 @@ Snippets
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1958482237453689274
+https://archive.md/VRF88
 
 
