@@ -50,3 +50,6 @@ Essay
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1954368711068184660
+https://archive.md/vS6CY
+
+
