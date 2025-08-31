@@ -23,4 +23,6 @@ Snippets
 - 関連リンク
 
 https://x.com/paraaestheline/status/1948561317612453947
+https://archive.md/wip/DtLGt
+
 
