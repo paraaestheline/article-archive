@@ -51,6 +51,9 @@ Snippets
 ## 補足
 - 関連リンク
 
+https://archive.md/wip/fzvhX
+
 https://x.com/paraaestheline/status/1944194355612594223
+
 
 
