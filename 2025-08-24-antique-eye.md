@@ -31,3 +31,5 @@ Catlog
 https://x.com/paraaestheline/status/1959660488943640937
 
 https://note.com/paraaestheline/n/nb445e6d87b21
+
+https://archive.md/g97eZ
