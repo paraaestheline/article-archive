@@ -77,6 +77,8 @@ archived_at: 2025-08-08
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1938246251688218827
+https://archive.md/HVISm
+
 
 
 
