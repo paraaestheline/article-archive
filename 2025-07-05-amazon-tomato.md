@@ -20,3 +20,4 @@ archived_at: 2025-08-08
 - 関連リンク
 
 https://x.com/paraaestheline/status/1941418795110891580
+https://archive.md/z4tvh
