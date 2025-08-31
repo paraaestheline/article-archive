@@ -113,6 +113,7 @@ Essay
 - 関連リンク
 
 https://x.com/paraaestheline/status/1955061401518739744
+https://archive.md/BK3du
 
 
 
