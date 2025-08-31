@@ -62,3 +62,5 @@ archived_at: 2025-08-08
 
 ## 補足
 - 関連リンク
+
+https://archive.md/ZaefY
