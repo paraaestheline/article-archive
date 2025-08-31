@@ -45,6 +45,7 @@ Catlog
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1956953222666711375
+https://archive.md/sRazx
 
 
 
