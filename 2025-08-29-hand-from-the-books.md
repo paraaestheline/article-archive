@@ -52,3 +52,5 @@ https://x.com/paraaestheline/status/1961295243997057393
 
 https://note.com/paraaestheline/n/n9e3e5bf26430
 
+https://archive.md/j55xf
+
