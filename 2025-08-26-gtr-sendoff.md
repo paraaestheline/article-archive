@@ -65,3 +65,6 @@ GT-Rを忘れずに、またいつか、こんなスパルタンな車に出会�
 https://x.com/paraaestheline/status/1961295243997057393
 
 https://note.com/paraaestheline/n/nccb5cb304dff
+
+https://archive.md/68WwW
+
