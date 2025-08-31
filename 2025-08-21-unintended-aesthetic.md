@@ -73,5 +73,7 @@ Snippets
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1958364333723066431
+https://archive.md/kVjSS
+
 
 
