@@ -32,3 +32,5 @@ About
 
 ## 補足
 - 関連リンク
+
+https://archive.md/Nv2vJ
