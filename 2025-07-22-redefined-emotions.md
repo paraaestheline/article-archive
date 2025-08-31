@@ -102,6 +102,10 @@ AIのラベルによって潰されてしまう。
 - 関連リンクや資料など
 
 https://x.com/paraaestheline/status/1947663979742208433
+https://archive.md/0ENem
+
+
+
 
 
 
