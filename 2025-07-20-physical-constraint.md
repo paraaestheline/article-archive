@@ -48,4 +48,6 @@ Still Tangled
 - 関連リンク
 
 https://x.com/paraaestheline/status/1946882792207593916
+https://archive.md/bRPAg
+
 
