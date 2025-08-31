@@ -33,4 +33,5 @@ Catlog
 - 関連リンク
 
 https://x.com/paraaestheline/status/1947548627242783068
+https://archive.md/c9lbg
 
