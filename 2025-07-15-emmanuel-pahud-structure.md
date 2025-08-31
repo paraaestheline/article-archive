@@ -142,6 +142,8 @@ J.S.バッハ：《無伴奏フルートのためのパルティータ》 イ短
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1945127298937585697
+https://archive.md/hvg8k
+
 
 
 
