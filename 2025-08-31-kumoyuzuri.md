@@ -41,3 +41,6 @@ Catlog
 https://x.com/paraaestheline/status/1962040562124824792
 
 https://note.com/paraaestheline/n/n6f682b01cab1
+
+https://archive.md/CgxA1
+
