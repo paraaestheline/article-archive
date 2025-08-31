@@ -42,6 +42,8 @@ Snippets
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1955055709474730239
+https://archive.md/sKNMR
+
 
 
 
