@@ -120,5 +120,10 @@ tags: [cognitive asymmetryideologymetacognitionprofessional identitysocial struc
 
 https://x.com/paraaestheline/status/1950074252595462343
 
+https://archive.md/ZcGOM
+
+
+
+
 
 
