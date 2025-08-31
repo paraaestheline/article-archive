@@ -42,4 +42,6 @@ Catlog
 - 関連リンク
 
 https://x.com/paraaestheline/status/1938053291029778438
+https://archive.md/fU4cN
+
 
