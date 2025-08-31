@@ -93,4 +93,6 @@ https://note.com/paraaestheline/n/n16531709596c
 
 https://x.com/paraaestheline/status/1960141996850663841
 
+https://archive.md/qnO4v
+
 
