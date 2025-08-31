@@ -23,3 +23,5 @@ Reflection：
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1934134594175107547
+https://archive.md/3bHpp
+
