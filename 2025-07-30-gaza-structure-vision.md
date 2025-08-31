@@ -166,6 +166,8 @@ distributed identityfaith and societyideologyinformationstructurenationhoodparaa
 - 関連リンクや資料など
 
 https://x.com/paraaestheline/status/1950523250154627290
+https://archive.md/YYdv9
+
 
 
 
