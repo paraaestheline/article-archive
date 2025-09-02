@@ -49,7 +49,7 @@ SNS的共感や大衆的拡散を目的とせず、思想・タグ・構造の�
 <li>archive.today: https://archive.md/https://paraaestheline.com/structure-protoco（←本記事リンクへ変更予定）</li>
 <li>Wayback Machine: https://web.archive.org/xxxx （←追記予定）</li>
 <li>X（旧Twitter）: https://x.com/paraaestheline/status/1962790992479990050</li>
-<li>note: https://note.com/paraaestheline/n/n1f67b2c5b243（※2025年8月24日以前の記録は旧アカウント削除により消失）</li>
+<li>note: https://note.com/paraaestheline/n/n1f67b2c5b243</li>
 </ul>
 
 <p><em>※noteアカウントは2025年8月24日以前の記録を含む旧アカウントが削除されたため、現在は同年8月24日以降のタイムスタンプ記録のみが公開状態にあります。旧記録はGitHub等にて保存されています。</em></p>
