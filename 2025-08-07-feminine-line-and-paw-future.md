@@ -32,7 +32,10 @@ Snippets
 ## 補足
 - 関連リンク
 https://x.com/paraaestheline/status/1953309420118786481
+
 https://archive.md/LyrIC
+
+https://web.archive.org/web/20250904012655/https://paraaestheline.com/feminine-line-and-paw-future/
 
 
 
