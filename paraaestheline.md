@@ -1,3 +1,5 @@
+<!-- このファイルは2025-07-21〜2025-09-03まで使用されていた旧トップページ（/schema）の構造記録です -->
+
 title: “構造の起点”
 URL: https://paraaestheline.com/
 original_published: 2025-07-21
@@ -34,3 +36,4 @@ About
 - 関連リンク
 
 https://archive.md/Nv2vJ
+
