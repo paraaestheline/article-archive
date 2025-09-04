@@ -47,7 +47,7 @@ SNS的共感や大衆的拡散を目的とせず、思想・タグ・構造の�
 <ul>
 <li>GitHub: https://github.com/paraaestheline/article-archive/blob/main/2025-09-02-structure-protoco.md</li>
 <li>archive.today: https://archive.md/xmQco</li>
-<li>Wayback Machine: https://web.archive.org/xxxx （←追記予定）</li>
+<li>Wayback Machine: https://web.archive.org/web/20250904105725/https://paraaestheline.com/structure-protoco/</li>
 <li>X（旧Twitter）: https://x.com/paraaestheline/status/1962790992479990050</li>
 <li>note: https://note.com/paraaestheline/n/n1f67b2c5b243</li>
 </ul>
