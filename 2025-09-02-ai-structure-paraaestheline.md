@@ -72,3 +72,6 @@ paraaestheline という識別子のもとで、私は「自分自身を構造�
 https://archive.md/lLMmQ
 https://note.com/paraaestheline/n/n5ff4c55fc55c
 https://x.com/paraaestheline/status/1962790992479990050
+https://web.archive.org/web/20250904113457/https://paraaestheline.com/ai-structure-paraaestheline/
+
+
